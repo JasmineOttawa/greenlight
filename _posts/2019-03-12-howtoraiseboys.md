@@ -37,20 +37,20 @@ and a listening ear when things at home are a little intense. You can do same to
 - Gender difference are real!  
   
 3, testosterone!  
-- teenage boys and driving
-- each boy is unique
-  a good parent of a boy understands TNT (testosterone needing tutoring)
-- why boys scuffle and fight
-- boys need order
-   who's in charge? what are the rules? will those rules be fairly enforced?
-- the key word is structure
-  Boys feel insecure and in danger is there isn't enough structure in a situation.
-  If no one is in charge, they begin jostling with each other to establish the pecking order.
-  success with boys means accepting their nature while directing it in good ways.
-  If you know what you are dealing with, it's a whole lot easier, and you don't need to blame anyone - just help them find a better way. 
-- how did male and female difference come about?  
-- the links between sex and aggression
-- guiding the "high Drive" boys 
+- teenage boys and driving  
+- each boy is unique  
+  a good parent of a boy understands TNT (testosterone needing tutoring)  
+- why boys scuffle and fight  
+- boys need order  
+   who's in charge? what are the rules? will those rules be fairly enforced?  
+- the key word is structure  
+  Boys feel insecure and in danger is there isn't enough structure in a situation.  
+  If no one is in charge, they begin jostling with each other to establish the pecking order.  
+  success with boys means accepting their nature while directing it in good ways.  
+  If you know what you are dealing with, it's a whole lot easier, and you don't need to blame anyone - just help them find a better way.   
+- how did male and female difference come about?    
+- the links between sex and aggression  
+- guiding the "high Drive" boys   
 
 4, how boy's and girl's brain differ  
 - danger: Sexiam alert  性别歧视
@@ -93,7 +93,7 @@ and a listening ear when things at home are a little intense. You can do same to
   If she knows from you that she is interesting, intelligent, and worthwhile, boys have to measure up to this - which eliminate 80 percent of them right off the bat.   
 - letter from a father  
   school angel-home devil  
-- Dads do matter
+- Dads do matter  
 
 6, mothers and sons  
 -- learning through consequences
@@ -139,87 +139,85 @@ and a listening ear when things at home are a little intense. You can do same to
 - a later starting age for boys
 - more men in school, of the right kind
 - discipline problems call for our involvement  
-- education with energy
-  
-- The principle is the key
-- Helping Boys with their vulnerable areas
-- The Cotswold Experiment
-  two big debates keep rearing their heads in the world of education
-  . single-sex education versus coeducation
-  . decline in boys' accomplishment and participation in school 
- - Helping boys helps girls too
- - homework hell
- - bullying
-  - how to spot an under-fathered boy in school
- - what parents can do
+- education with energy  
+    
+- The principle is the key  
+- Helping Boys with their vulnerable areas   
+- The Cotswold Experiment  
+  two big debates keep rearing their heads in the world of education  
+  . single-sex education versus coeducation  
+  . decline in boys' accomplishment and participation in school   
+ - Helping boys helps girls too  
+ - homework hell  
+ - bullying  
+  - how to spot an under-fathered boy in school  
+ - what parents can do  
 
- - role-modeling is how humans learn
- - what are "learning difficuties"
- - a middle school doing a great job with boys
- - a primary school doing a great job with boys
- - occupational therapy
- - parents make it happen
+ - role-modeling is how humans learn  
+ - what are "learning difficuties"  
+ - a middle school doing a great job with boys  
+ - a primary school doing a great job with boys  
+ - occupational therapy  
+ - parents make it happen  
  - 
 
-9, boys & sports
-   sports can be an unbeatable medium for caring, learning, and bringing the generations together.
-- Christmas Cricket
-- Sports: a double-edged sword
-- The positives of sports
-  . a safe place to show affection
-  . lessons for life
-- The negatives
-  . Toxic role models and the "jock" culture
-  . The talent trap
-- The coach from hell
-- How role modeling works
-  There is more range of possibility for every kind of boy to find his true path.  "That man is like me, and I can be like that man"
-- What about injuries
-- Make it good
-  
-10, community challenge
-- losing, winning and grace (a football match)
-- men at work (a school on the poor side of town )
-- Initiation (an island sojourn)
-  
+9, boys & sports  
+   sports can be an unbeatable medium for caring, learning, and bringing the generations together.  
+- Christmas Cricket  
+- Sports: a double-edged sword  
+- The positives of sports  
+  . a safe place to show affection  
+  . lessons for life  
+- The negatives  
+  . Toxic role models and the "jock" culture  
+  . The talent trap  
+- The coach from hell  
+- How role modeling works  
+  There is more range of possibility for every kind of boy to find his true path.  "That man is like me, and I can be like that man"  
+- What about injuries  
+- Make it good  
+    
+10, community challenge  
+- losing, winning and grace (a football match)  
+- men at work (a school on the poor side of town )  
+- Initiation (an island sojourn)  
+    
 
-why are 13-year-olds often dopey :  (因嗜酒或服药)昏迷的；昏昏沉沉的；迟钝的；愚蠢的
-puberty:  青春期；春情发动期
-a tycoon : 企业界的大亨；（日本幕府的）将军
-wilder world is beckoning too:  召唤；吸引；示意某人按自己的指示行动
-getting into strife with the law: 争吵；冲突；倾轧；竞争
-joint attention sequences
-croon, stroke :  低声歌唱；低吟；轻哼, sing softly
-stress hormone cortisol : ［生］皮质(甾)醇
-stern admonition:    严格的/严厉的；  警告；劝告
-tense and brittle man:  tense - 紧张的；绷紧的；拉紧的  brittle- 易碎的；尖利的；脆弱的
-
-engrossment: 用大字写；占去 ... 所有的时间；囤积居奇，大量收买；全神贯注
-klutz:  笨手笨脚的人；傻瓜
-The pact that I made with my wife:  契约；协定；条约
-rough-and-tumble:  混战；扭打
-prissy:  谨小慎微的；神经质的；为小事挂虑的
-I was so stunned the best I could offer was a feeble protest:  虚弱的；无力的
-being late for school if ha dawdles:   磨蹭；浪费时间；闲逛
-valiant attempts 勇敢的；英勇的
-sojourn : 旅居；逗留
-with surprising eloquence:  雄辩；口才
-a hopelessly rowdy scout troop in their city  吵闹的；粗暴的
-testosterone : 睾丸激素
-estrogen:  雌激素
-you can ham it up a little bit : Exaggerate or overdo, especially with extravagant emotion, as in Hamming up the eulogy was disgraceful, especially since he didn't even know the deceased .
-    It is also put as ham it up, meaning “overact,” as in She loves to ham it up in front of the class
+why are 13-year-olds often dopey :  (因嗜酒或服药)昏迷的；昏昏沉沉的；迟钝的；愚蠢的  
+puberty:  青春期；春情发动期  
+a tycoon : 企业界的大亨；（日本幕府的）将军  
+wilder world is beckoning too:  召唤；吸引；示意某人按自己的指示行动  
+getting into strife with the law: 争吵；冲突；倾轧；竞争  
+joint attention sequences  
+croon, stroke :  低声歌唱；低吟；轻哼, sing softly  
+stress hormone cortisol : ［生］皮质(甾)醇  
+stern admonition:    严格的/严厉的；  警告；劝告  
+tense and brittle man:  tense - 紧张的；绷紧的；拉紧的  brittle- 易碎的；尖利的；脆弱的  
+  
+engrossment: 用大字写；占去 ... 所有的时间；囤积居奇，大量收买；全神贯注  
+klutz:  笨手笨脚的人；傻瓜  
+The pact that I made with my wife:  契约；协定；条约  
+rough-and-tumble:  混战；扭打  
+prissy:  谨小慎微的；神经质的；为小事挂虑的   
+I was so stunned the best I could offer was a feeble protest:  虚弱的；无力的  
+being late for school if ha dawdles:   磨蹭；浪费时间；闲逛  
+valiant attempts 勇敢的；英勇的  
+sojourn : 旅居；逗留  
+with surprising eloquence:  雄辩；口才  
+a hopelessly rowdy scout troop in their city  吵闹的；粗暴的  
+testosterone / estrogen  雌激素  
+you can ham it up a little bit : Exaggerate or overdo, especially with extravagant emotion, as in Hamming up the eulogy was disgraceful, especially since he didn't even know the deceased .  
+    It is also put as ham it up, meaning “overact,” as in She loves to ham it up in front of the class  
 "jock" culture:   <美俚> (大学)运动员; 苏格兰士兵
-Binge drink: 狂欢作乐；放纵
-little pansies : 三色紫罗兰；<俚>同性恋男子；娘娘腔
-pedophile:  恋童癖者
+Binge drink: 狂欢作乐；放纵  
+little pansies : 三色紫罗兰；<俚>同性恋男子；娘娘腔  
 catcall:  v. 发嘘声
-epitome:  缩影；化身；摘要（古）
-raunchy music and gyrating models : raunchy- 不整洁的；粗俗的；淫秽的; gyrating- 旋涡状的；旋转的
-antidote:   解毒剂；解药；对抗手段
-slightly gruff:  粗鲁的；生硬的；粗糙的；粗哑的
-no-nonsense manner:  不容许胡说的；正经的；严肃的
-youth exuberence:  茂盛；充沛；丰富
+epitome:  缩影；化身；摘要（古）  
+raunchy music and gyrating models : raunchy- 不整洁的；粗俗的；淫秽的; gyrating- 旋涡状的；旋转的  
+antidote:   解毒剂；解药；对抗手段   
+slightly gruff:  粗鲁的；生硬的；粗糙的；粗哑的  
+no-nonsense manner:  不容许胡说的；正经的；严肃的  
+youth exuberence:  茂盛；充沛；丰富  
 
 
 
